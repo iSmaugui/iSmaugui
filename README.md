@@ -20,4 +20,4 @@ I'm here to learn more about C and C++, game development, and embedded systems. 
 
 🌙 My username, "iSmaugui," is inspired by the character Smaug from J.R.R. Tolkien's The Hobbit. 
 
-Cheers xd
+🫡 Cheers xd
